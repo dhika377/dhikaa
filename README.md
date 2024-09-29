@@ -1,2 +1,0 @@
-# dhikaa
-hehe
